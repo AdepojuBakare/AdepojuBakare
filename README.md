@@ -5,6 +5,5 @@
 - 📫 How to reach me adepojubakare@gmail.com and @pojubakare on Instagram 
 
 <!---
-AdepojuBakare/AdepojuBakare is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+Self-proclaimed Mentalist, Call me Tony Stark and you won't be work cos I think, envision, and create.
 --->
